@@ -1,4 +1,4 @@
-# 
+# نخبة bot السكالبينج امتدادات for Mac OS | نهائي bot السكالبينج امتدادات for PC Windows. Featuring واجهة برمجة التطبيقات للتبادل المركزي and مجموعات السيولة DEX — optimized for maximum performance.
 
 
 
